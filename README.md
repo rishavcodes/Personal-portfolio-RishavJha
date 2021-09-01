@@ -1,1 +1,1 @@
-# Personal-portfolio-RishavJha
+# personal-portfolio-rishav-jha
